@@ -1,1 +1,0 @@
-# TYCOON-da-EvoluEvolu-o-da-Idade---BY-CBERNODRY
